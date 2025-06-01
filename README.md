@@ -4,7 +4,7 @@ Marcel Assunção da Silva / RA: 1136750
 
 Joaquim Lorenzoni Amarante / RA: 1136252
 
-Gabriel Hnerique Ramos Cannini / RA: 1135604
+Gabriel Henrique Ramos Cannini / RA: 1135604
 
 PROJETO:
 
